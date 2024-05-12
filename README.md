@@ -10,3 +10,6 @@ Read:
 2. Manipulation - 6 Manuscripts - Mind Control, Hypnosis, Manipulation, How to Analyze People, How to Secretly Manipulate People, Human. From Leonard Moore.
 3. About neuropsychology.
 4. About neuro linguistic programming and its techniques.
+5. Neuroscience international 6th from Dale, George, David, William, Anthony, Richard, Michael and Leonard.
+6. About neurology.
+7. About mentalization.
